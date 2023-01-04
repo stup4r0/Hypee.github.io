@@ -1,1 +1,1 @@
-# Hypee.github.io
+**discord.gg/hypee**
